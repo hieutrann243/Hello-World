@@ -8,3 +8,4 @@ I am okay with the certainty now, better than I was during my last year of colle
 My goal right now is to become a great coder. One who can create and build amazing things that no one ever imagined. 
 
 Thank you for your attention! 
+Update 12.28.2018
